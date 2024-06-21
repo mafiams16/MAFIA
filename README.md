@@ -1,6 +1,6 @@
 Free tool mafia m1
 
-[MAFIA M16]
+[MAFIA M16] 
 
 FB CLONING TOOL
 
